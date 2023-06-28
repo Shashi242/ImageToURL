@@ -6,7 +6,8 @@
 
 ![318936696_203690845460598_6525647366872797049_n](https://github.com/Shashi242/ImageToURL/assets/84275426/1e1f9816-d6cc-4f9b-b687-58acdb1a38a3)
 
-![Certificate 19VBCA040993 eshuzo](https://github.com/Shashi242/ImageToURL/assets/84275426/26526a16-07a5-460e-84a4-8f66af593e4a)
+![Screenshot (243)](https://github.com/Shashi242/ImageToURL/assets/84275426/d5408006-e62d-4817-9059-8518573f62c5)
+
 
 
 [Coursera.pdf](https://github.com/Shashi242/ImageToURL/files/11899049/Coursera.pdf)
